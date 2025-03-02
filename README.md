@@ -1,5 +1,5 @@
 <h1 align="center">Hi 👋, I'm Sk. Golam Hossain Sazu</h1>
-<h3 align="center">Assistant manager - Universal Group</h3>
+<h3 align="center">PGDHRM-BIMS, MBA,BBA-IU</h3>
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
